@@ -4,3 +4,4 @@ parada to je super
 
 
 najlepsie pocasie
+mam rad banany a jabluka
